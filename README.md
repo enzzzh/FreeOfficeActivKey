@@ -7,7 +7,7 @@ Unlock the full potential of your Office suite with our free activation key! Fol
 
 ## ⚡ Compatibility Check
 
-- Ensure your version of Office is compatible with the activation key provided.
+- Please make sure your version of Office is compatible with the activation key provided.
 - Confirm that you are on a **metered network connection** to avoid unexpected updates.
 
 ## 🚀 Quick Setup
@@ -26,7 +26,7 @@ Unlock the full potential of your Office suite with our free activation key! Fol
 Have questions or feedback? Reach out!
 
 - **Instagram:** [@enzzz.h](https://instagram.com/enzzz.h)
-- **Email:** [enzzzha@gmail.com](mailto:enzzzha@gmail.com)
+- **Email:** [enzzzha@gmail.com](mailto:enzohakim2008@gmail.com)
 
 ## 💖 Thank You!
 
